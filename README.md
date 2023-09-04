@@ -1,3 +1,2 @@
 # Tribute-Page-Of-Sunil-Chhetri
-
-https://pin.it/56JSxhO
+https://www.instagram.com/p/CuUt8rZgaC1/
