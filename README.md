@@ -1,2 +1,2 @@
 # Tribute-Page-Of-Sunil-Chhetri
-![https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.gettyimages.com%2Fid%2F1082254824%2Fphoto%2Fsunil-chhetri-of-india-in-action-during-the-afc-asian-cup-group-a-match-between-india-and.jpg%3Fs%3D612x612%26w%3Dgi%26k%3D20%26c%3DTfBSUFCve8m6-mWWKyWnmMqdugBO8yromTIsjmNXkqM%3D&tbnid=mQJ-Cfq6qfa1RM&vet=12ahUKEwiHoYzpypCBAxXlzaACHX9ADvwQMygLegQIARBP..i&imgrefurl=https%3A%2F%2Fwww.gettyimages.in%2Fphotos%2Fsunil-chhetri&docid=jHXbX52HyqgBBM&w=612&h=408&q=sunil%20chhetri%20photos%20those%20links%20works%20in%20github%20repository&ved=2ahUKEwiHoYzpypCBAxXlzaACHX9ADvwQMygLegQIARBP)
+ ![https://mega.nz/file/1bcwECaQ#ZJSbPHCwNK03w4dvvu_hPOvva6L9HWWejGKnr2kDOfI)
